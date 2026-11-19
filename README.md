@@ -3,7 +3,7 @@
 **Business Insight Manager in pharma → Data Analyst / Data Scientist.**
 I turn business questions into data, models and decisions — and I know what the decision-maker on the other side of the table needs.
 
-📍 Luxembourg · 💼 [LinkedIn](https://www.linkedin.com/in/kyoung-ran-song-a88898124) · ✉️ 96hera@hanmail.net
+📍 Luxembourg · 💼 [LinkedIn](https://www.linkedin.com/in/kyoung-ran-song-a88898124)
 
 ---
 
